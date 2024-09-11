@@ -1,3 +1,1 @@
-# hiii-dAD
-GOOD
-YUGBHJB
+FGNHH
